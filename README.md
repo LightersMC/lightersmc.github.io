@@ -1,1 +1,1 @@
-# lightersmc.github.io
+hyxir.github.io
